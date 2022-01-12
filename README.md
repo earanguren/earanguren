@@ -1,4 +1,4 @@
-- 👋 Hi, I'm Estefania Aranguren 👩🏻🦱.
+- 👋 Hi, I'm Estefania Aranguren 👩🏻‍🦱.
 - 👀 I'm interested in coding, styles and dance.
 - 🌱 I am currently learning nordic, fury and andes.
 - 💞️ I am looking to collaborate on projects to improve our productivity in Meli.
